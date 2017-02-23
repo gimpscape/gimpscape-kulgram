@@ -1,0 +1,1 @@
+# Log Perkuliahan Gimpscape Indonesia
